@@ -1,0 +1,1 @@
+botu bozmak yasaktır 
